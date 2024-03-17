@@ -5,17 +5,17 @@ En esta página comparto un poco de información sobre mí.
 
 ## ESP
 
-### Biodata
+### Biodata (en tercera persona ;)
 
 Alhelí Málaga (Lima, 1988) estudió filosofía en la Universidad Jesuita Ignatianum, en Cracovia, y sociología en la Universidad Nacional Mayor de San Marcos, en Lima. Poemas suyos fueron incluidos en los conjuntos "Paradero desierto. Vol. I" (2022) y "Paradero desierto. Segunda llamada" (2024). En el 2022 publicó "Érase un espejo", su primer conjunto poético independiente. Textos suyos fueron publicados en las plataformas Kametsa, Helikopter, Tinta Digital y Tlen Literacki, y traducciones suyas del polaco en Vallejo & Company y Lucerna. En el 2023 obtuvo el tercer premio en el XXXV Concurso de Poesía Władysław Broniewski (Płock, Polonia).
 
 ### Poemarios
 
-En el 2022 presenté al mundo _Érase un espejo_, mi primer conjunto poético independiente, con diecinueve textos. El tiraje fue de cien ejemplares, en formato _brochure_. Un libro de tapa aceituna, delicado, como los poemas que presenta al mundo. [Disponible [aquí](https://github.com/malhelik/malhelik.github.io/files/14628088/REG.Erase.un.espejo.Alheli.Malaga.pdf)]. Mi segundo poemario - cuyo título provisional es _Cáscara_ - está en preparación y debe hacerse materia a fines del 2024.
+En el 2022 presenté al mundo _Érase un espejo_, mi primer conjunto poético independiente, con diecinueve poemas. El tiraje fue de cien ejemplares, en formato _brochure_. Un libro de tapa aceituna, delicado, como los poemas que presenta al mundo. [El conjunto está disponible [aquí](https://github.com/malhelik/malhelik.github.io/files/14628088/REG.Erase.un.espejo.Alheli.Malaga.pdf) para descarga]. Mi segundo poemario - cuyo título provisional es _Cáscara_ - está en preparación y debe hacerse materia a fines del 2024.
 
 ### Libros colectivos
 
-Desde el año 2020 participo en las actividades del colectivo poético Paradero Desierto. Hemos publicado en conjunto dos libros. El primero es "Paradero desierto. Vol. I" (2022). Participo en este conjunto con cinco poemas: _me acerco al río_, _habrá de_, _tenías solo_, _bosques de sol_, _erizo común (Erinaceus europaeus)_. [Disponible [aquí](https://github.com/malhelik/malhelik.github.io/files/14628090/Paradero.desierto.Vol.I.pdf)]. El segundo libro es "Paradero desierto. Segunda llamada" (2024), con cinco poemas míos: _Llamado_, _Rechazar el llamado_, _La diosa_, _Cruzar el umbral_, _Vientre de ballena_. [Disponible [aquí](https://github.com/malhelik/malhelik.github.io/files/14628091/Paradero.desierto.Segunda.llamada.VF.pdf)]. Me honra ser coautora de estos dos conjuntos junto con los poetas Giovanna Torres, Miguel Gil Castro, Villanueva Lorenzo, Dagoberto Benites, Gloria Alvitres y Muki Sabogal.
+Desde el año 2020 participo en las actividades del colectivo poético Paradero Desierto. Hemos publicado en conjunto dos libros. El primero es "Paradero desierto. Vol. I" (2022). Cinco poemas míos son parte de este conjunto: _me acerco al río_, _habrá de_, _tenías solo_, _bosques de sol_, _erizo común (Erinaceus europaeus)_. [El libro está disponible [aquí](https://github.com/malhelik/malhelik.github.io/files/14628090/Paradero.desierto.Vol.I.pdf) para descarga]. En el 2024 publicamos "Paradero desierto. Segunda llamada", con cinco poemas míos: _Llamado_, _Rechazar el llamado_, _La diosa_, _Cruzar el umbral_, _Vientre de ballena_. [Libro disponible [aquí](https://github.com/malhelik/malhelik.github.io/files/14628091/Paradero.desierto.Segunda.llamada.VF.pdf)]. Me honra ser coautora de estos dos conjuntos junto con los poetas Giovanna Torres, Miguel Gil Castro, Villanueva Lorenzo, Dagoberto Benites, Gloria Alvitres y Muki Sabogal.
 
 ### Revistas en español
 
@@ -33,7 +33,7 @@ Moje wiersze ukazały się w [Helikopterze](https://www.opt-art.net/helikopter/1
 
 ## TRADUCCIONES
 
-Tal vez mi verdadera vocación, mi verdadero llamado, sea la traducción literaria. Me he atrevido a traducir del polaco al español poemas escogidos de K.K. Baczyński, Cz. Miłosz, A. Świrszczyńska, Z. Ginczanka, T. Różewicz, J. Dehnel, M. Świetlicki, M. Sagi, U. Sikora, Ł. Jarosz, M. Białoszewski, M. Czarnecki, J. Hartwig, entre otros. Actualmente estoy trabajando en una selección de poesía polaca contemporánea escrita por mujeres. Agradezco a [Vallejo & Company](https://www.vallejoandcompany.com/tag/alheli-malaga) y [Lucerna](https://www.revistalucerna.com) por el espacio para publicar algunas de mis traducciones.
+Tal vez mi verdadera vocación, mi verdadero llamado, sea la traducción literaria. Me he atrevido a traducir del polaco al español poemas escogidos de K.K. Baczyński, Cz. Miłosz, A. Świrszczyńska, Z. Ginczanka, T. Różewicz, J. Dehnel, M. Świetlicki, M. Sagi, U. Sikora, Ł. Jarosz, M. Białoszewski, M. Czarnecki, J. Hartwig, entre otros. Actualmente estoy trabajando en una selección de poesía polaca contemporánea escrita por mujeres. Agradezco a [Vallejo & Company](https://www.vallejoandcompany.com/tag/alheli-malaga) y a la revista [Lucerna](https://www.revistalucerna.com) por el espacio para publicar algunas de mis traducciones.
 
 ## CONTACTO
 
