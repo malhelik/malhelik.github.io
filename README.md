@@ -13,11 +13,11 @@ Alhelí Málaga (Lima, 1988) estudió filosofía en la Universidad Jesuita Ignat
 
 En el 2022 presenté al mundo _Érase un espejo_, mi primer conjunto poético independiente, con diecinueve textos. El tiraje fue de cien ejemplares, en formato _brochure_. Un libro de tapa aceituna, delicado, como los poemas que presenta al mundo. [Disponible [aquí](https://github.com/malhelik/malhelik.github.io/files/14628088/REG.Erase.un.espejo.Alheli.Malaga.pdf)]. Mi segundo poemario - cuyo título provisional es _Cáscara_ - está en preparación y debe hacerse materia a fines del 2024.
 
-###. Libros colectivos
+### Libros colectivos
 
 Desde el año 2020 participo en las actividades del colectivo poético Paradero Desierto. Hemos publicado en conjunto dos libros. El primero es "Paradero desierto. Vol. I" (2022). Participo en este conjunto con cinco poemas: _me acerco al río_, _habrá de_, _tenías solo_, _bosques de sol_, _erizo común (Erinaceus europaeus)_. [Disponible [aquí](https://github.com/malhelik/malhelik.github.io/files/14628090/Paradero.desierto.Vol.I.pdf)]. El segundo libro es "Paradero desierto. Segunda llamada" (2024), con cinco poemas míos: _Llamado_, _Rechazar el llamado_, _La diosa_, _Cruzar el umbral_, _Vientre de ballena_. [Disponible [aquí](https://github.com/malhelik/malhelik.github.io/files/14628091/Paradero.desierto.Segunda.llamada.VF.pdf)]. Me honra ser coautora de estos dos conjuntos junto con los poetas Giovanna Torres, Miguel Gil Castro, Villanueva Lorenzo, Dagoberto Benites, Gloria Alvitres y Muki Sabogal.
 
-###. Revistas en español
+### Revistas en español
 
 La [Revista Kametsa](revistakametsa.wordpress.com/2022/07/22/poesia-internacional-alheli-malaga-peru/) tuvo a bien  compartir tres poemas míos: _érase un espejo_, _elección del formato_ y _tormenta_. La plataforma [Tinta Digital](https://tintadigitalxs.wordpress.com/2023/11/20/3-poemas-de-alheli-malaga) acogió también tres poemas de mi autoría: _primavera en el parque_, _Rolando_ y _memorias del haba_.
 
@@ -39,4 +39,4 @@ Tal vez mi verdadera vocación, mi verdadero llamado, sea la traducción literar
 
 Puedes encontrarme en [Facebook](www.facebook.com/alhelimalaga) e [Instagram](www.instagram.com/malhelik) o mandarme un correo al correo _alheli.malaga@gmail.com_.
 
-/assets/images/IMG_20240202_170150.jpg
+![dia de fiesta](https://github.com/malhelik/malhelik.github.io/assets/163737180/1048b74c-fbb6-4387-8108-8b90b55db7e4)
