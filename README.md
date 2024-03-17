@@ -1,4 +1,5 @@
-# Bienvenida, bienvenido
+# De poesía y otros fantasmas
+## Bienvenida, bienvenido
 
 Mi nombre es Alhelí Málaga.
 En esta página comparto un poco de información sobre mí.
