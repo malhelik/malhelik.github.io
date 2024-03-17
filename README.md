@@ -39,4 +39,4 @@ Tal vez mi verdadera vocación, mi verdadero llamado, sea la traducción literar
 
 Puedes encontrarme en [Facebook](https://www.facebook.com/alhelimalaga) e [Instagram](https://www.instagram.com/malhelik) o mandarme un correo a _alheli.malaga@gmail.com_.
 
-![dia de fiesta](https://github.com/malhelik/malhelik.github.io/assets/163737180/1048b74c-fbb6-4387-8108-8b90b55db7e4)
+![plantitas](https://github.com/malhelik/malhelik.github.io/assets/163737180/22be2d40-212b-4a39-ac23-00316406adc0)
