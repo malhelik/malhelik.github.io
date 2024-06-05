@@ -8,7 +8,7 @@ En esta página comparto un poco de información sobre mí.
 
 ### Biodata (en tercera persona ;)
 
-Alhelí Málaga (Lima, 1988) estudió filosofía en la Universidad Jesuita Ignatianum, en Cracovia, y sociología en la Universidad Nacional Mayor de San Marcos, en Lima. Poemas suyos fueron incluidos en los conjuntos "Paradero desierto. Vol. I" (2022) y "Paradero desierto. Segunda llamada" (2024). En el 2022 publicó "Érase un espejo", su primer conjunto poético independiente. Textos suyos fueron publicados en las plataformas Kametsa, Helikopter, Tinta Digital y Tlen Literacki, y traducciones suyas del polaco en Vallejo & Company y Lucerna. En el 2023 obtuvo el tercer premio en el XXXV Concurso de Poesía Władysław Broniewski (Płock, Polonia).
+Alhelí Málaga (Lima, 1988) estudió filosofía en la Universidad Jesuita Ignatianum, en Cracovia, y sociología en la Universidad Nacional Mayor de San Marcos, en Lima. Poemas suyos fueron incluidos en los conjuntos "Paradero desierto. Vol. I" (2022) y "Paradero desierto. Segunda llamada" (2024). En el 2022 publicó "Érase un espejo", su primer conjunto poético independiente. Textos suyos fueron publicados en las plataformas Kametsa, Helikopter, Tinta Digital, Tlen Literacki y Casa del Tiempo, y traducciones suyas del polaco en Vallejo & Company y Lucerna. En el 2023 obtuvo el tercer premio en el XXXV Concurso de Poesía Władysław Broniewski (Płock, Polonia).
 
 ### Poemarios
 
@@ -20,7 +20,7 @@ Desde el año 2020 participo en las actividades del colectivo poético Paradero 
 
 ### Revistas en español
 
-La [Revista Kametsa](https://www.revistakametsa.wordpress.com/2022/07/22/poesia-internacional-alheli-malaga-peru/) tuvo a bien  compartir tres poemas míos: _érase un espejo_, _elección del formato_ y _tormenta_. La plataforma [Tinta Digital](https://tintadigitalxs.wordpress.com/2023/11/20/3-poemas-de-alheli-malaga) acogió también tres poemas de mi autoría: _primavera en el parque_, _Rolando_ y _memorias del haba_.
+La [Revista Kametsa](https://www.revistakametsa.wordpress.com/2022/07/22/poesia-internacional-alheli-malaga-peru/) tuvo a bien  compartir tres poemas míos: _érase un espejo_, _elección del formato_ y _tormenta_. La plataforma [Tinta Digital](https://tintadigitalxs.wordpress.com/2023/11/20/3-poemas-de-alheli-malaga) acogió también tres poemas de mi autoría: _primavera en el parque_, _Rolando_ y _memorias del haba_. Dos poemas míos llegaron hasta México: _ya fue_ y _maestro de calamarca_ fueron publicados en la revista [Casa del Tiempo](https://casadeltiempo.uam.mx/index.php/30-ct-vi-15/533-ct-vi-15-dos-poemas-alheli-malaga) de la Universidad Autónoma Metropolitana.
 
 ## PL
 
