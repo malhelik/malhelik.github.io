@@ -22,11 +22,15 @@ Desde el año 2020 participo en las actividades del colectivo poético Paradero 
 
 La [Revista Kametsa](https://www.revistakametsa.wordpress.com/2022/07/22/poesia-internacional-alheli-malaga-peru/) tuvo a bien  compartir tres poemas míos: _érase un espejo_, _elección del formato_ y _tormenta_. La plataforma [Tinta Digital](https://tintadigitalxs.wordpress.com/2023/11/20/3-poemas-de-alheli-malaga) acogió también tres poemas de mi autoría: _primavera en el parque_, _Rolando_ y _memorias del haba_. Dos poemas míos llegaron hasta México: _ya fue_ y _maestro de calamarca_ fueron publicados en la revista [Casa del Tiempo](https://casadeltiempo.uam.mx/index.php/30-ct-vi-15/533-ct-vi-15-dos-poemas-alheli-malaga) de la Universidad Autónoma Metropolitana.
 
+### Antologías
+
+Mi poema _manos_ fue incluido en la antología "Artes poéticas" (2022) - selección de Oscar Limache, ediciones Copé/Petroperú  - y mis poemas _Punta de Bombón_ y _A Lima, con amor_ fueron incluidos en la antología "Mujeres en fuego" (2024) - selección de Lenyan Veka, editorial Fuego. La antología de Petroperú se puede leer en línea [aquí](https://cultura.petroperu.com.pe/biblioteca-virtual/artes-poeticas-muestra-de-textos-del-taller-de-poesia-dictado-por-oscar-limache/) y la antología ígnea de poesía escrita por mujeres se puede obtener [aquí](https://www.instagram.com/editorialfuego/).
+
 ## PL
 
 ### Biogram
 
-Alhelí Málaga (Lima, 1988) - autorka związana z peruwiańskim kolektywem poetyckim Paradero Desierto. W 2022 wydała książkę poetycką _Érase un espejo_. Z wykształcenia socjolożka, mieszka w Krakowie. 
+Alhelí Málaga (Lima, 1988) studiowała filozofię na krakowskim Ignatianum oraz socjologię na uniwersytecie San Marcos w Limie. W 2022 roku ukazała się jej pierwsza książka poetycka _Érase un espejo_. Wiersze jej autorstwa znalazły się w zbiorach _Paradero desierto. Vol. I (2022)_ i _Paradero desierto. Segunda llamada_ (2024) oraz w czasopismach literackich (m. in. „Kametsa", "Casa del Tiempo", „Tlen Literacki", "e-eleWator"), a przekłady poetyckie z polskiego na hiszpański w jej wykonaniu ukazały się na łamach „Lucerny" oraz „Vallejo & Company". Mieszka w Krakowie.
 
 ### Twórczość w języku polskim
 
