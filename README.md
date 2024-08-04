@@ -8,7 +8,7 @@ En esta página comparto un poco de información sobre mí.
 
 ### Biodata (en tercera persona ;)
 
-Alhelí Málaga (Lima, 1988) estudió filosofía en la Universidad Jesuita Ignatianum, en Cracovia, y sociología en la Universidad Nacional Mayor de San Marcos, en Lima. Poemas suyos fueron incluidos en los conjuntos "Paradero desierto. Vol. I" (2022) y "Paradero desierto. Segunda llamada" (2024). En el 2022 publicó "Érase un espejo", su primer conjunto poético independiente. Textos suyos fueron publicados en las plataformas Kametsa, Helikopter, Tinta Digital, Tlen Literacki, Casa del Tiempo, e-eleWator, Epea y Zakład, y traducciones suyas del polaco en Vallejo & Company y Lucerna. En el 2023 obtuvo el tercer premio en el XXXV Concurso de Poesía Władysław Broniewski (Płock, Polonia).
+Alhelí Málaga (Lima, 1988) estudió filosofía en la Universidad Jesuita Ignatianum, en Cracovia, y sociología en la Universidad Nacional Mayor de San Marcos, en Lima. Poemas suyos fueron incluidos en los conjuntos "Paradero desierto. Vol. I" (2022) y "Paradero desierto. Segunda llamada" (2024). En el 2022 publicó "Érase un espejo", su primer conjunto poético independiente. Textos suyos fueron publicados en las plataformas Kametsa, Helikopter, Tinta Digital, Tlen Literacki, Casa del Tiempo, e-eleWator, Epea y Zakład, y traducciones suyas del polaco en Vallejo & Company y en la revista Lucerna, y sus traducciones al polaco en Tlen Literacki. En el 2023 obtuvo el tercer premio en el XXXV Concurso de Poesía Władysław Broniewski (Płock, Polonia).
 
 ### Poemarios
 
@@ -38,10 +38,10 @@ Moje wiersze ukazały się w [Helikopterze](https://www.opt-art.net/helikopter/1
 
 ## TRADUCCIONES
 
-Tal vez mi verdadera vocación, mi verdadero llamado, sea la traducción literaria. Me he atrevido a traducir del polaco al español poemas escogidos de K.K. Baczyński, Cz. Miłosz, A. Świrszczyńska, Z. Ginczanka, T. Różewicz, J. Dehnel, M. Świetlicki, M. Sagi, U. Sikora, Ł. Jarosz, M. Białoszewski, M. Czarnecki, J. Hartwig, entre otros. Actualmente estoy trabajando en una selección de poesía polaca contemporánea escrita por mujeres. Agradezco a [Vallejo & Company](https://www.vallejoandcompany.com/tag/alheli-malaga) y a la revista [Lucerna](https://www.revistalucerna.com) por el espacio para publicar algunas de mis traducciones.
+Tal vez mi verdadera vocación, mi verdadero llamado, sea la traducción literaria. Me he atrevido a traducir del polaco al español poemas escogidos de K.K. Baczyński, Cz. Miłosz, A. Świrszczyńska, Z. Ginczanka, T. Różewicz, J. Dehnel, M. Świetlicki, M. Sagi, U. Sikora, Ł. Jarosz, M. Białoszewski, M. Czarnecki, J. Hartwig, entre otros. Actualmente estoy trabajando en una selección de poesía polaca contemporánea escrita por mujeres. Agradezco a [Vallejo & Company](https://www.vallejoandcompany.com/tag/alheli-malaga) y a la revista [Lucerna](https://www.revistalucerna.com) por el espacio para publicar algunas de mis traducciones. Me animé a traducir algunos poemas de Lizardo Cruzado al polaco, fueron publicados en la revista [Tlen Literacki nro. 15](https://tlenliteracki.pl/lizardo-cruzado-wiersze/).
 
 ## CONTACTO
 
-Puedes encontrarme en [Facebook](https://www.facebook.com/alhelimalaga) e [Instagram](https://www.instagram.com/malhelik) o mandarme un correo a _alheli.malaga@gmail.com_.
+Puedes encontrarme en [Facebook](https://www.facebook.com/alhelimalaga) e [Instagram](https://www.instagram.com/malhelik) o mandarme un correo a _alheli.malaga@gmail.com_. La mayoría de enlaces vinculados a mi trabajo están en mi [linktree](https://linktr.ee/alhelicha).
 
 ![plantitas](https://github.com/malhelik/malhelik.github.io/assets/163737180/22be2d40-212b-4a39-ac23-00316406adc0)
