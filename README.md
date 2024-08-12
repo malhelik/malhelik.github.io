@@ -8,7 +8,7 @@ En esta página comparto un poco de información sobre mí.
 
 ### Biodata (en tercera persona ;)
 
-Alhelí Málaga (Lima, 1988) estudió filosofía en la Universidad Jesuita Ignatianum, en Cracovia, y sociología en la Universidad Nacional Mayor de San Marcos, en Lima. Poemas suyos fueron incluidos en los conjuntos "Paradero desierto. Vol. I" (2022) y "Paradero desierto. Segunda llamada" (2024). En el 2022 publicó "Érase un espejo", su primer conjunto poético independiente. Textos suyos fueron publicados en las plataformas Kametsa, Helikopter, Tinta Digital, Tlen Literacki, Casa del Tiempo, e-eleWator, Epea y Zakład, y traducciones suyas del polaco en Vallejo & Company y en la revista Lucerna, y sus traducciones al polaco en Tlen Literacki. En el 2023 obtuvo el tercer premio en el XXXV Concurso de Poesía Władysław Broniewski (Płock, Polonia).
+Alhelí Málaga (Lima, 1988) estudió filosofía en la Universidad Jesuita Ignatianum, en Cracovia, y sociología en la Universidad Nacional Mayor de San Marcos, en Lima. Poemas suyos fueron incluidos en los conjuntos "Paradero desierto. Vol. I" (2022) y "Paradero desierto. Segunda llamada" (2024). En el 2022 publicó "Érase un espejo", su primer conjunto poético independiente. Textos suyos fueron publicados en las plataformas Kametsa, Helikopter, Tinta Digital, Tlen Literacki, Casa del Tiempo, e-eleWator, Epea y Zakład. Traducciones suyas del polaco fueron acogidas por Vallejo & Company y por la revista Lucerna, y sus traducciones del castellao al polaco aparecieron en Tlen Literacki. En el 2023 obtuvo el tercer premio en el XXXV Concurso de Poesía Władysław Broniewski (Płock, Polonia).
 
 ### Poemarios
 
