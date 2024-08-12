@@ -30,7 +30,7 @@ Mi poema _manos_ fue incluido en la antología "Artes poéticas" (2022) - selecc
 
 ### Biogram
 
-Alhelí Málaga (Lima, 1988) studiowała filozofię na krakowskim Ignatianum oraz socjologię na uniwersytecie San Marcos w Limie. W 2022 roku ukazała się jej pierwsza książka poetycka _Érase un espejo_. Wiersze jej autorstwa znalazły się w zbiorach _Paradero desierto. Vol. I (2022)_ i _Paradero desierto. Segunda llamada_ (2024) oraz w czasopismach literackich („Kametsa", "Tinta digital", "Casa del Tiempo", "Helikopter", „Tlen Literacki", "e-eleWator", "Epea", "Zakład"), a przekłady poetyckie w jej wykonaniu ukazały się na łamach „Lucerny" oraz „Vallejo & Company" i "Tlenie Literackim". Mieszka w Krakowie.
+Alhelí Málaga (Lima, 1988) studiowała filozofię na krakowskim Ignatianum oraz socjologię na uniwersytecie San Marcos w Limie. W 2022 roku ukazała się jej pierwsza książka poetycka _Érase un espejo_. Wiersze jej autorstwa znalazły się w zbiorach _Paradero desierto. Vol. I (2022)_ i _Paradero desierto. Segunda llamada_ (2024) oraz w czasopismach literackich („Kametsa", "Tinta digital", "Casa del Tiempo", "Helikopter", „Tlen Literacki", "e-eleWator", "Epea", "Zakład"), a przekłady poetyckie w jej wykonaniu ukazały się na łamach „Lucerny" oraz w „Vallejo & Company" i "Tlenie Literackim". Mieszka w Krakowie.
 
 ### Twórczość w języku polskim
 
