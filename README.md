@@ -8,7 +8,7 @@ En esta página comparto un poco de información sobre mí.
 
 ### Biodata (en tercera persona ;)
 
-Alhelí Málaga (Lima, 1988) estudió filosofía en la Universidad Jesuita Ignatianum, en Cracovia, y sociología en la Universidad Nacional Mayor de San Marcos, en Lima. Poemas suyos fueron incluidos en los conjuntos "Paradero desierto. Vol. I" (2022) y "Paradero desierto. Segunda llamada" (2024). En el 2022 publicó "Érase un espejo", su primer conjunto poético independiente. Textos suyos fueron publicados en las plataformas Kametsa, Helikopter, Tinta Digital, Tlen Literacki, Casa del Tiempo, e-eleWator, Epea y Zakład. Traducciones suyas del polaco fueron acogidas por Vallejo & Company y por la revista Lucerna, y sus traducciones del castellano al polaco aparecieron en Tlen Literacki. En el 2023 obtuvo el tercer premio en el XXXV Concurso de Poesía Władysław Broniewski (Płock, Polonia).
+Alhelí Málaga (Lima, 1988) estudió filosofía en la Universidad Jesuita Ignatianum, en Cracovia, y sociología en la Universidad Nacional Mayor de San Marcos, en Lima. Poemas suyos fueron incluidos en los conjuntos "Paradero desierto. Vol. I" (2022) y "Paradero desierto. Segunda llamada" (2024). En el 2022 publicó "Érase un espejo", su primer conjunto poético independiente. Textos suyos fueron publicados por diferentes medios literarios (Kametsa, Helikopter, Tinta Digital, Tlen Literacki, Casa del Tiempo, e-eleWator, Epea, Zakład, Casapaís). Traducciones suyas del polaco fueron acogidas por Vallejo & Company y por la revista Lucerna, y sus traducciones del castellano al polaco aparecieron en Tlen Literacki. En el 2023 obtuvo el tercer premio en el XXXV Concurso de Poesía Władysław Broniewski (Płock, Polonia).
 
 ### Poemarios
 
@@ -20,7 +20,7 @@ Desde el año 2020 participo en las actividades del colectivo poético Paradero 
 
 ### Revistas en español
 
-La [Revista Kametsa](https://www.revistakametsa.wordpress.com/2022/07/22/poesia-internacional-alheli-malaga-peru/) tuvo a bien  compartir tres poemas míos: _érase un espejo_, _elección del formato_ y _tormenta_. La plataforma [Tinta Digital](https://tintadigitalxs.wordpress.com/2023/11/20/3-poemas-de-alheli-malaga) acogió también tres poemas de mi autoría: _primavera en el parque_, _Rolando_ y _memorias del haba_. Dos poemas míos llegaron hasta México: _ya fue_ y _maestro de calamarca_ fueron publicados en la revista [Casa del Tiempo](https://casadeltiempo.uam.mx/index.php/30-ct-vi-15/533-ct-vi-15-dos-poemas-alheli-malaga) de la Universidad Autónoma Metropolitana.
+La [Revista Kametsa](https://www.revistakametsa.wordpress.com/2022/07/22/poesia-internacional-alheli-malaga-peru/) tuvo a bien  compartir tres poemas míos: _érase un espejo_, _elección del formato_ y _tormenta_. La plataforma [Tinta Digital](https://tintadigitalxs.wordpress.com/2023/11/20/3-poemas-de-alheli-malaga) acogió también tres poemas de mi autoría: _primavera en el parque_, _Rolando_ y _memorias del haba_. Dos poemas míos llegaron hasta México: _ya fue_ y _maestro de calamarca_ fueron publicados en la revista [Casa del Tiempo](https://casadeltiempo.uam.mx/index.php/30-ct-vi-15/533-ct-vi-15-dos-poemas-alheli-malaga) de la Universidad Autónoma Metropolitana. La revista migrante [Casapaís](https://www.casapais.org/faro-fantasma/alheli-malaga) acogió también algunos poemas míos.
 
 ### Antologías
 
@@ -30,7 +30,7 @@ Mi poema _manos_ fue incluido en la antología "Artes poéticas" (2022) - selecc
 
 ### Biogram
 
-Alhelí Málaga (Lima, 1988) studiowała filozofię na krakowskim Ignatianum oraz socjologię na uniwersytecie San Marcos w Limie. W 2022 roku ukazała się jej pierwsza książka poetycka _Érase un espejo_. Wiersze jej autorstwa znalazły się w zbiorach _Paradero desierto. Vol. I (2022)_ i _Paradero desierto. Segunda llamada_ (2024) oraz w czasopismach literackich („Kametsa", "Tinta digital", "Casa del Tiempo", "Helikopter", „Tlen Literacki", "e-eleWator", "Epea", "Zakład"), a przekłady poetyckie w jej wykonaniu ukazały się na łamach „Lucerny" oraz w „Vallejo & Company" i "Tlenie Literackim". Mieszka w Krakowie.
+Alhelí Málaga (Lima, 1988) studiowała filozofię na krakowskim Ignatianum oraz socjologię na uniwersytecie San Marcos w Limie. W 2022 roku ukazała się jej pierwsza książka poetycka _Érase un espejo_. Wiersze jej autorstwa znalazły się w zbiorach _Paradero desierto. Vol. I (2022)_ i _Paradero desierto. Segunda llamada_ (2024) oraz w czasopismach literackich („Kametsa", "Tinta digital", "Casa del Tiempo", "Casapaís", "Helikopter", „Tlen Literacki", "e-eleWator", "Epea", "Zakład"), a przekłady poetyckie w jej wykonaniu ukazały się na łamach „Lucerny" oraz w „Vallejo & Company" i "Tlenie Literackim". Mieszka w Krakowie.
 
 ### Twórczość w języku polskim
 
