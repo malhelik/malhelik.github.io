@@ -26,6 +26,10 @@ La [Revista Kametsa](https://www.revistakametsa.wordpress.com/2022/07/22/poesia-
 
 Mi poema _manos_ fue incluido en la antología "Artes poéticas" (2022) - selección de Oscar Limache, ediciones Copé/Petroperú  - y mis poemas _Punta de Bombón_ y _A Lima, con amor_ fueron incluidos en la antología "Mujeres en fuego" (2024) - selección de Lenyan Veka, editorial Fuego. La antología de Petroperú se puede leer en línea [aquí](https://cultura.petroperu.com.pe/biblioteca-virtual/artes-poeticas-muestra-de-textos-del-taller-de-poesia-dictado-por-oscar-limache/) y la antología ígnea de poesía escrita por mujeres se puede obtener [aquí](https://www.instagram.com/editorialfuego/).
 
+### Narrativa
+
+Mi cuento [_Muerte en la avenida Brasil_](https://revistann.pucp.edu.pe/nueve-relatos/muerte-en-la-avenida-brasil/) fue publicado en el cuarto número de la revista NN/Nuevos Narradores... _Ojalá el sueño llegue pronto, y si su fantasma no me arrulla, soy capaz de rascarme las picaduras hasta la sangre. Hasta las lágrimas._
+
 ## PL
 
 ### Biogram
