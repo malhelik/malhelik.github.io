@@ -12,7 +12,7 @@ Alhelí Málaga (Lima, 1988) estudió filosofía en la Universidad Jesuita Ignat
 
 ### Poemarios
 
-En el 2022 presenté al mundo "Érase un espejo", mi primer conjunto poético independiente, con diecinueve poemas. El tiraje fue de cien ejemplares, en formato _brochure_. Un libro de tapa aceituna, delicado, como los poemas que presenta al mundo. [El conjunto está disponible [aquí](https://github.com/malhelik/malhelik.github.io/files/14628088/REG.Erase.un.espejo.Alheli.Malaga.pdf) para descarga]. Mi segundo poemario - cuyo título provisional es "Cáscara" - está en preparación y debe hacerse materia a comienzos del 2025.
+En el 2022 presenté al mundo "Érase un espejo", mi primer conjunto poético independiente, con diecinueve poemas. El tiraje fue de cien ejemplares, en formato _brochure_. Un libro de tapa aceituna, delicado, como los poemas que presenta al mundo. [El conjunto está disponible [aquí](https://github.com/malhelik/malhelik.github.io/files/14628088/REG.Erase.un.espejo.Alheli.Malaga.pdf) para descarga]. Mi segundo poemario - cuyo título provisional es "Cáscara" - está en preparación y debe hacerse materia a comienzos del 2026.
 
 ### Libros colectivos
 
@@ -50,12 +50,12 @@ W 2024 roku pożegnałam się tymczasowo z Krakowem... ofiarowałam znajomym ark
 
 Tal vez mi verdadera vocación, mi verdadero llamado, sea la traducción literaria. Me he atrevido a traducir del polaco al español poemas escogidos de K.K. Baczyński, Cz. Miłosz, A. Świrszczyńska, Z. Ginczanka, T. Różewicz, J. Dehnel, M. Świetlicki, M. Sagi, U. Sikora, Ł. Jarosz, M. Białoszewski, M. Czarnecki, J. Hartwig, entre otros. 
 
-En el 2024 fui residente del programa para traductores Archipelagos (Kolegium Europy Wschodniej, Wojnowice, Polonia) y estoy iniciando el 2025 con un financiamiento de la Asociación Polaca de Autores y Compositores (ZAIKS) para traducir poesía polaca contemporánea escrita por mujeres. Estoy afiliada a la Asociación de Traductores Literarios de Polonia (STL) con el estatus de miembro-candidato.
+En el 2024 fui residente del programa para traductores Archipelagos (Kolegium Europy Wschodniej, Wojnowice, Polonia) y en el 2025 recibí un financiamiento de la Asociación Polaca de Autores y Compositores (ZAIKS) para traducir poesía polaca contemporánea al castellano. Estoy afiliada a la Asociación de Traductores Literarios de Polonia (STL) con el estatus de miembro-candidato.
 
 Agradezco a [Vallejo & Company](https://www.vallejoandcompany.com/tag/alheli-malaga) y a la revista [Lucerna](https://www.revistalucerna.com) por el espacio para publicar mis traducciones. Me animé a traducir algunos poemas de Lizardo Cruzado al polaco, fueron publicados en la revista [Tlen Literacki nro. 15](https://tlenliteracki.pl/lizardo-cruzado-wiersze/). 
 
 ## CONTACTO
 
-Puedes encontrarme en [Facebook](https://www.facebook.com/alhelimalaga) e [Instagram](https://www.instagram.com/malhelik) o mandarme un correo a _alheli.malaga@gmail.com_. La mayoría de enlaces vinculados a mi trabajo están en mi [linktree](https://linktr.ee/alhelicha).
+Puedes encontrarme en [Facebook](https://www.facebook.com/alhelimalaga) e [Instagram](https://www.instagram.com/malhelik) o mandarme un correo a _alheli.malaga@gmail.com_. La mayoría de enlaces vinculados a mi trabajo literario están en mi [linktree](https://linktr.ee/alhelicha).
 
 ![plantitas](https://github.com/malhelik/malhelik.github.io/assets/163737180/22be2d40-212b-4a39-ac23-00316406adc0)
