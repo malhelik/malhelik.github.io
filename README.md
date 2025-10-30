@@ -34,6 +34,12 @@ La plataforma Las Críticas acogió las ["Notas sobre Paradero desierto. Vol. I"
 
 Mi cuento [_Muerte en la avenida Brasil_](https://revistann.pucp.edu.pe/nueve-relatos/muerte-en-la-avenida-brasil/) fue publicado en el cuarto número de la revista NN/Nuevos Narradores a fines del 2024... _Ojalá el sueño llegue pronto, y si su fantasma no me arrulla, soy capaz de rascarme las picaduras hasta la sangre. Hasta las lágrimas._
 
+### Porque editar es ampliar la escritura...
+
+Un proyecto colectivo que me llenó de alegría en el 2025 fue la publicación de la microrevista/fanzine ["Casa de Pilatos"](https://paraderodesierto.com/publicaciones/#fanzines) del colectivo Paradero Desierto. Coordiné y diagramé tres números de esta miniantología de bolsillo, con textos seleccionados por Miguel Gil. El número 4 se encuentra en preparación.
+
+En paralelo estoy preparando el lanzamiento del catálogo de mi sello Mamífero. Es un sueño que se viene cocinando desde hace tiempo y ha ido madurando poco a poco. Lo bueno tarda, pero llega.
+
 ## PL
 
 ### Biogram
