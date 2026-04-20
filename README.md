@@ -12,7 +12,7 @@ Alhelí Málaga (Lima, 1988) estudió filosofía en la Universidad Jesuita Ignat
 
 ### Poemarios
 
-En el 2022 presenté al mundo "Érase un espejo", mi primer conjunto poético independiente, con diecinueve poemas. El tiraje fue de cien ejemplares, en formato _brochure_. Un libro de tapa aceituna, delicado, como los poemas que presenta al mundo. [El conjunto está disponible [aquí](https://github.com/malhelik/malhelik.github.io/files/14628088/REG.Erase.un.espejo.Alheli.Malaga.pdf) para descarga]. Mi segundo poemario - cuyo título provisional es "Cáscara" - está en preparación y debe hacerse materia a comienzos del 2026.
+En el 2022 presenté al mundo "Érase un espejo", mi primer conjunto poético independiente, con diecinueve poemas. El tiraje fue de cien ejemplares, en formato _brochure_. Un libro de tapa aceituna, delicado, como los poemas que presenta al mundo. [El conjunto está disponible [aquí](https://github.com/malhelik/malhelik.github.io/files/14628088/REG.Erase.un.espejo.Alheli.Malaga.pdf) para descarga]. Mi segundo libro, compuesto por los poemarios "Se llamaba Teresa" y "De los dones" está en preparación y debe hacerse materia a comienzos de agosto del 2026.
 
 ### Libros colectivos
 
